@@ -1,2 +1,2 @@
 # 1stPrize
-The results of my efforts for the first prize
+The results of my efforts for get a job
